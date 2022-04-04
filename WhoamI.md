@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AetherIV personally known as Rafael
+- 👀 I’m interested in tecnology and computers in general
+- 🌱 I’m currently learning Computer Engineering in college
+- 💞️ I’m looking to collaborate on learning on codes, projects and anything related to technology and information really
+- 📫 How to reach me, you can reach me by sending me an Email at bonieliasabatini@gmail.com
